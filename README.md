@@ -5,7 +5,7 @@
   
 - 🔭 I’m currently working with [Shebak](https://www.shebak.com)  
   
-- 🌱 I’m currently learning **DevOps, AI Research**  
+- 🌱 I’m currently learning **DevOps, AI Latest Tech & Research**  
   
 - 🤝 I’m open for help with **Teaching Up**  
   
