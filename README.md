@@ -7,7 +7,7 @@
   
 - 🌱 I’m currently learning **DevOps, AI Latest Tech & Research**  
   
-- 🤝 I’m open for help with **Teaching Up**  
+- 🤝 I’m open for help to **Teaching Up**  
   
 - 👨‍💻 All of my projects are available at [iobele.com](iobele.com)  
   
