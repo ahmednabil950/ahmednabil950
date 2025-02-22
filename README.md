@@ -9,9 +9,9 @@
   
 - 🤝 I’m open for help to **Teaching Up**  
   
-- 👨‍💻 All of my projects are available at [iobele.com](iobele.com)  
+- 👨‍💻 All of my projects are available at [iobele.com](https://iobele.com)  
   
-- 📝 I regularly write articles on [iobele.com](iobele.com)  
+- 📝 I regularly write articles on [iobele.com](https://iobele.com)  
   
 - 📫 How to reach me **ahmednabil950@gmail.com**  
   
